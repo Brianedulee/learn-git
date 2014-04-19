@@ -1,2 +1,2 @@
-jedi is gey
-bc hes gey
+jedi is gud
+bc hes gud
